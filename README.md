@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BeckyWecky
+- 👀 I’m interested food,books, tv shows, movies, vr, nerds, bridges, lakes, beautiful views, cold places, snow, autumn, autumn colours, bed
+- 🌱 I’m currently learning how to survive on my own
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me Discord: becky_wecky.
